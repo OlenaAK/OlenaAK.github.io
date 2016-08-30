@@ -1,2 +1,2 @@
 # OlenaAK.github.io
-Olena Kyrychenko resume
+Olena Kyrychenko's resume
